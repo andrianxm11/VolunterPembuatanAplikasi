@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Andrian M, [Github](https://github.com/andrianxm).
+* Pnetol Sinichi [Github].(https://www.instagram.com/yama_notremor?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
